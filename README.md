@@ -5,3 +5,5 @@
 - Konsumsi peserta
 - Q and A
 - Masukan dan Saran
+- Kegiatan Taklim
+- Membaca Alquran OMOJ

@@ -5,3 +5,8 @@
 - Konsumsi peserta
 - Q and A
 - Masukan dan Saran
+- Kegiatan Taklim
+- Membaca Alquran OMOJ
+- Mengundang penceramah
+- Tromol taklim
+- Kegiatan hari besar agama
